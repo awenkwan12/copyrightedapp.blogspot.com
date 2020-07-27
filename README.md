@@ -1,0 +1,1 @@
+# copyrightedapp.blogspot.com
